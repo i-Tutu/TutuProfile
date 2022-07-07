@@ -1,4 +1,4 @@
 
-My CV template.
+My CV template
 
 
